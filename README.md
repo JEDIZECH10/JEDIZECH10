@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @JEDIZECH10
+- 👋 Hi, I’m @JEDIZECH10!
 - 👀 I’m interested in Minecraft, coding and games!
-- 🌱 I’m currently learning Java
-- 💞️ I’m looking to collaborate on Any minecraft content
-- 📫 How to reach me: Please email me at: zechariahmorrell@outlook.com
+- 🌱 I’m currently learning Java.
+- 💞️ I’m looking to collaborate on Any minecraft or gaming content.
+- 📫 How to reach me: Please email me at: zechariahmorrell@outlook.com or text me at(I do not accept calls, only texts.): (256) 458-2250
 - 😄 Pronouns: N/A
 - ⚡ Fun fact: N/A
 
